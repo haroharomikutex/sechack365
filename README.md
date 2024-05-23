@@ -1,5 +1,6 @@
    /\_/\  
   ( ^.^ ) 
    > ^ <  
- (        ) 
-DO NOT COPY !!! ©︎MH Atelier 2024
+ (        )
+DO NOT COPY !!!
+©︎MH Atelier 2024
